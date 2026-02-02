@@ -1,1 +1,1 @@
-# parthi-freindship
+# parthi-friendship
